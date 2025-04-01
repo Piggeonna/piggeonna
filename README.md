@@ -13,7 +13,9 @@
 ---
 
 ### ummmmmm stuff ig:
-LMAO THERES NOTHING HERE L
+WIPPPP
+(Rate my music taste tho)
+https://open.spotify.com/playlist/2VPdDRf9f5WDHNePstGfYU?si=RSrJS3AiTTacLhekYvxRAg
   
   
 

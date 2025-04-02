@@ -9,6 +9,8 @@
   <div align="center">
   <img src="https://en.picmix.com/pic/download?picId=11986830&key=b1713" width="300" height="300"/>
 </div>
+      
+[![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=s12uenf3xuez4eu5dy28pfg15&count=10)](https://open.spotify.com/user/s12uenf3xuez4eu5dy28pfg15)
 
 ---
 

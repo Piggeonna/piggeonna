@@ -40,7 +40,7 @@ Most of the info you'll need is on my pronouns page and patreon, idk what else t
 
 -  This will probably be expanded on in the future, I have no idea how to code ;3;
 
-Heh, you should like... totally rate my music tast too
+Heh, you should like... totally rate my music taste too
 
 https://open.spotify.com/playlist/2VPdDRf9f5WDHNePstGfYU?si=RSrJS3AiTTacLhekYvxRAg
   

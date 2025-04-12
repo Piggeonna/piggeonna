@@ -1,13 +1,12 @@
 ## coughs (oh yeah this is a WIP btw [HOW DO YOU CODE???????])
 <div id="header" align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/3/9/6/2/2652693_7403f.png" width="700"/>
   <div id="badges">
   <img src="https://komarev.com/ghpvc/?username=piggeonna&style=plastic-square&color=c92644" alt=""/>
     <h1>
     howdy sigmas
   </div>
   <div align="center">
-  <img src="https://en.picmix.com/pic/download?picId=11986830&key=b1713" width="300" height="300"/>
+  <img src="https://en.picmix.com/pic/download?picId=11986830&key=b1713" width="100" height="100"/>
 </div>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&redirect=true)

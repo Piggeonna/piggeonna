@@ -9,14 +9,16 @@
   <div align="center">
   <img src="https://en.picmix.com/pic/download?picId=11986830&key=b1713" width="300" height="300"/>
 </div>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&redirect=true)
       
-[![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=s12uenf3xuez4eu5dy28pfg15&count=10)](https://open.spotify.com/user/s12uenf3xuez4eu5dy28pfg15)
+[![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=s12uenf3xuez4eu5dy28pfg15&count=3)](https://open.spotify.com/user/s12uenf3xuez4eu5dy28pfg15)
 
 ---
 
 ### ummmmmm stuff ig:
 Most of the info you'll need is on my pronouns page and patreon, idk what else to add here. Take an elabotation of some boundaries ig:
--  Anyone UNDER 13 (0-12) DO NOT INTERACT UNLESS FRIEND. I genuinely hate kids SO MUCH, but many younger people I interact with I have been friends with from the beginning, so they are an exception. Same thing with anyone over 18.
+-  Anyone UNDER 13 (0-12) interact with EXTREME caution. I genuinely hate kids SO MUCH, but many younger people I interact with I have been friends with from the beginning, so they are an exception. Same thing with anyone over 18. I may talk with you but I'll probably be pretty dry and won't accept request.
 
 -  Also, tutorial skins do not interact unless friend. Yes, I get that you want to have a shadow or a sonic (why are all tut skins sonadow btw) but they just make you look uncreative imo. Just TRY to make one for the love of everything that is bad and unholy. You'll probably get more interaction if you aren't a tut skin. I promise, NO ONE CARES IF IT DOESN'T LOOK ACCURATE TO THE CHARACTER, ONLY THAT YOU TRIED. 
 

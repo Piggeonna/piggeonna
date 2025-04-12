@@ -23,6 +23,8 @@ Most of the info you'll need is on my pronouns page and patreon, idk what else t
 
 -  I may have "DNIUCF" in my name. If I do, this typically refers to anyone I have added on discord. So, if that's you, feel free to interact. Otherwise, I'll just ignore you or be very dry.
 
+-  Sonadow fans interact with caution. I AM a Sonadow shipper but y'all scare me. Shadamy dni, unless we're friends then just interact with caution cuz shadamy is something... same with Shadouge.
+
 -  I've got some pretty bad anger issues, and barely ever think before talking (whoops). If I upset you, please let me know. I can be really snarky and just rude in general, so please set boundaries with me!
 
 -  Over the top religious people just DNI. I've had so many bad experiences with people overcome with religious psychosis that I'm on the verge of saying religious people DNI. Don't try to covert me or ask why exactly I feel this way. Respect me and my beliefs and I'll respect yours.
